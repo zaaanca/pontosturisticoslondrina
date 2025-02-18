@@ -4,7 +4,7 @@ Eduardo Stocchero Zancanaro\
 Guilherme Camilo da Silva\
 Gustavo Martire
 
-## Afinal. oque são pontos turísticos?
+## Afinal, oque são pontos turísticos?
 Já parou para pensar que praticamente toda cidade tem um ponto turístico?! Por mais que seja apenas mais um letreiro comum como **"I Love Sorocaba"**. Então aqui vai um **TOP 10** pontos turísticos da nossa querida e amada **Londrina.**
 
 # TOP 10
